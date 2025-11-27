@@ -9,3 +9,5 @@ Maket 3: https://figma.com/design/f8Gx3e0G1s4EJC1CDb0E2F/Laborator-UI-Librairies
 Maket 4: https://figma.com/design/K17BSWnIO3ZjaBZAfuwgbY/Exercitiu-animatie-obiect?t=ZpRjHIvHFVo6i1GF-0
 
 Maket 5: https://figma.com/design/fKeqeDG2nGhuAGa0HzM8PC/Profil-Glass?t=ZpRjHIvHFVo6i1GF-0
+
+jhjhjhjhjhjjhjhjh
